@@ -10,3 +10,4 @@ git kamu kayak boneka,lucu dan menggemaskan
 
 ##Harapan saya 
 Saya ingin lulus 4 tahun denga ipk yang memuaskan aminn YA TUHAN YESUS
+Semoga mendapatkan pekerjaan setelah lulus 
